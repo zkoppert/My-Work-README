@@ -39,7 +39,7 @@ Transparency breeds understanding. You can expect me to be open with anything yo
 I don't believe in hurting others to get ahead. 
 
 ## No Comment
-I get frustrating when I work to create a positive safe work environment and people disengage, don't care, and don't have opinions.
+I get frustrated when I work to create a positive and safe work environment and people disengage, don't care, and don't have opinions.
 
 # What About You?
 
