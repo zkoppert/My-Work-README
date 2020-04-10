@@ -1,3 +1,4 @@
+<a href="https://opensource.org"><img height="150" align="right" src="https://opensource.org/files/OSIApprovedCropped.png" alt="Open Source Initiative Approved License logo"></a>
 # Whats the Point?
 I'm writing this to help define our working relationship, set expectatations, and invite you to hold me accountable.
 
